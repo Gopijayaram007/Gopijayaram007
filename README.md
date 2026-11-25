@@ -66,7 +66,7 @@ I enjoy experimenting with new technologies, developing practical projects, part
 ### 🌐 Connect With Me
 
 - **GitHub:** [@Gopijayaram007](https://github.com/Gopijayaram007)
-- **LinkedIn:** [Add your LinkedIn profile]([https://www.linkedin.com/](https://www.linkedin.com/in/gopijayaram-e-03194737b))
+- **LinkedIn:** [Add your LinkedIn profile](https://www.linkedin.com/](https://www.linkedin.com/in/gopijayaram-e-03194737b))
 
 ---
 
